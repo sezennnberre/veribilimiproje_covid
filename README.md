@@ -1,0 +1,2 @@
+# veribilimiproje_covid
+ 
